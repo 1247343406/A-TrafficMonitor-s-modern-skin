@@ -6,3 +6,7 @@
 皮肤预览：
 ![图片](https://github.com/user-attachments/assets/98e40001-30e1-4a98-9d79-264be11d203b)
 ![图片](https://github.com/user-attachments/assets/f7aa4e68-9126-4158-ae30-4a5599ae6ae5)
+
+大图：
+![成品7](https://github.com/user-attachments/assets/afc80654-8fa8-42e5-9d90-563eafc7070e)
+![成品！！！！V2](https://github.com/user-attachments/assets/b578ad11-3182-4d9a-97ab-422e307ba96f)
